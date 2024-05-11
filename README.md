@@ -5,14 +5,14 @@
   The Finals No Recoil Script
 </h1>
 
+<br>
+<h2>No Recoil Software New Version 1.4 Intro  👉 https://youtu.be/3i3SNICVz7o 👈 Must Watch</h2>
+<h4>How to get software 👉 https://youtu.be/66RGd2Fa-IE </h4>
+<h4>Why Undetected 👉 https://youtu.be/b96gAJefihI </h4>
+<br>
+
 # the-finals-no-recoil-script
 the finals no recoil script macro. The only safest and undetectable software you can have to get no recoil and stay undetected.
-
-# Watch the below videos for more Information
-➡️ Why Undetected: https://youtu.be/b96gAJefihI<br>
-➡️ No Recoil Software Intro : https://youtu.be/Wb-5UqI2XK8<br>
-➡️ No Recoil Software Settings Explained: https://youtu.be/fRPYkyVnmWk<br>
-➡️ How to get Software: https://youtu.be/66RGd2Fa-IE<br>
 
 <h2>YouTube</h2>
 https://www.youtube.com/@little_edge
